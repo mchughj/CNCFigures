@@ -2,7 +2,7 @@
 
 This one is probably my favorite.  
 
-![Maple and bloodwood](/Example_Cut_1.png)
+![Maple and bloodwood](Example_Cut_1.png)
 
 The two humans appear to be holding hands with the heart on top.
 
