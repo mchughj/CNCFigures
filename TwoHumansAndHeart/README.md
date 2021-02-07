@@ -4,7 +4,7 @@ This one is probably my favorite.
 
 ![Maple and bloodwood](Example_Cut_1.png)
 
-The two humans appear to be holding hands with the heart on top.
+The two humans are cut out of maple and the heart in the center is bloodwood.  I'm hopeful that the bloodwood red heart retains its red color for awhile. 
 
 I like the female hair on this one.
 
